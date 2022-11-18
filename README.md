@@ -11,4 +11,16 @@ O racismo é atualmente um dos grandes problemas existentes em nosso país, atua
   Tudo isso foi construído no Brasil por mais de três séculos de escravidão e de apagamento dos negros e da sua cultura após a abolição da escravatura. É importante considerarmos que medidas efetivas de combate ao racismo e à marginalização dos negros só começaram a acontecer no final da década de 1980. Desse modo, ainda há um longo percurso a ser trilhado no combate ao racismo, e o dia 20 de novembro é um convite para que possamos percorrê-lo.
 Combater o racismo é, no entanto, um compromisso diário de todos nós como cidadãos brasileiros e não deve ser realizado somente no dia 20 de novembro, mas, sim, todos os dias do ano.
 A construção de um Brasil melhor e mais justo passa, obrigatoriamente, pelo combate ao racismo.
-![download](https://user-images.githubusercontent.com/112202796/202707836-4bb98746-0df1-4933-8c12-23a9990f909d.png)
+
+
+
+
+
+
+
+
+
+
+![download](https://user-images.githubusercontent.com/112202796/202708189-230d08d7-7e5a-4f0c-95b8-5e76ab0715ac.jpg)
+
+
